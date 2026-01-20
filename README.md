@@ -5,6 +5,7 @@
 
 - 📫 How to reach me: ... 213-393-5067
 
-     
-Thank you for visiting....
 
+  {linked text}  (linkedin.com/in/charles-mavaro-a65a8a253)
+Thank you for visiting....
+🌎🎹🎬🎥
